@@ -18,4 +18,4 @@ If you have multiple Discord accounts or token, you can easily have all of your 
 
 Ready to take your Discord server vc to the next level active? Click the button below to purchase this script and start using it today!
 
-[![Buy Now](https://cdn.icon-icons.com/icons2/1369/PNG/512/-shopping-cart_90604.png)](https://www.buymeacoffee.com/sadik/e/148197)
+[![Buy Now](https://i.ibb.co/Lvt6VWd/button.png)](https://www.buymeacoffee.com/sadik/e/148197)
